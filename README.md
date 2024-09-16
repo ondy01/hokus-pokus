@@ -1,2 +1,2 @@
-Tento program se používá takto lmfao
+Tento program se používá takto
 ahuj githube
